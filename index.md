@@ -1,6 +1,6 @@
 # Comb Honey!
 
-Thanks for buying a piece of cut comb honey! Cut comb is indeed a bit luxury, and it's probably my favorite form of honey. I've included some recommendations below on what to have it with if you're unsure. 
+Thanks for buying a piece of cut comb honey! Cut comb is indeed a bit luxury, and it's probably my favorite type of honey. I've included some recommendations below on what to have it with if you're unsure. 
 
 Remember, if you have any questions about your honey that aren't covered here, your local beekeeper will probably be *more* than happy to tell you how it's produced.
 
