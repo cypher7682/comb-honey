@@ -37,7 +37,7 @@ Probably not for the best. The wax will melt, and you'll have a very strange tea
 
 That's pollen! Did you know that bees use pollen as their source of protein? That's right - bees collect pollen on their legs when they are producing young bees, and they convert it into royal jelly to feed to larvae.
 
-The pollen is compacted down in the cells with a bit of honey; and a bit of saliva, which provides enzymes and yeast to ferment (pre-digest) the bollen into what's called "bee bread". It's edible, and is really quite tasty. 
+The pollen is compacted down in the cells with a bit of honey; and a bit of saliva, which provides enzymes and yeast to ferment (pre-digest) the pollen into what's called "bee bread". It's edible, and is really quite tasty. 
 
 ### How should I store it? 
 
