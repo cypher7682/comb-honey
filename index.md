@@ -57,7 +57,7 @@ The comb almost gives the honey a savory texture/taste which complements some fo
 
 Those specks you're seeing are either: pollen, wax, propolis.
 
-If you notice any colored specks, that's probably pollen. If it's a red-brown colour, it's propolise. Again, both of these are edible. In fact propolis can add a whole different flavor to the honey! 
+If you notice any colored specks, that's probably pollen. If it's a red-brown colour, it's propolise. Again, both of these are edible. In fact propolis can add a whole different flavor to the honey!
 
 ### Why shouldn't it be fed to infants?
 
